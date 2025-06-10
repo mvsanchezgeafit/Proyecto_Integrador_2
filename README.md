@@ -16,7 +16,7 @@ Sin embargo, no se tiene claridad sobre cómo las personas realmente perciben y 
 
 ¿Medimos el impacto emocional de nuestras campañas?
 
-¿Detectamos a tiempo las se˜nales de alerta?
+¿Detectamos a tiempo las señales de alerta?
 
 
 
