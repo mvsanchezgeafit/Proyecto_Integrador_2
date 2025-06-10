@@ -12,6 +12,12 @@ Mattelsa ha construido una marca que va más allá de la ropa promueve una forma
 
 Sin embargo, no se tiene claridad sobre cómo las personas realmente perciben y sienten esa identidad. Aunque los mensajes están presentes, no hay una forma concreta de saber qué emociones generan, qué tan auténtico resulta ese vínculo para la comunidad, ni si los contenidos están conectando de verdad con quienes siguen la marca.
 
+¿Sabemos cómo se sienten realmente las personas con nuestra filosofía?
+
+¿Medimos el impacto emocional de nuestras campañas?
+
+¿Detectamos a tiempo las se˜nales de alerta?
+
 
 
 
