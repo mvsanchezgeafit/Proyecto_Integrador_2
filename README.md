@@ -1,1 +1,7 @@
 # Proyecto_Integrador_2
+
+Mattelsa es una marca de ropa que ha logrado diferenciarse en el mercado no solo por sus productos, sino por los mensajes de transformación social y emocional que comunica constantemente. Desde sus inicios como comercializadora de ropa nacional
+e internacional, ha evolucionado hacia la creación y distribución de prendas propias,
+acampañadas de un discurso activista centrado en el cuidado del medio ambiente, el bienestar emocional y la vida en comunidad (El Colombiano, 2023).
+Más allá de su propuesta comercial, Mattelsa promueve una filosofía de vida que se refleja en sus publicaciones y acciones: alimentación consciente, actividad física, descanso, meditación, ocio y comunidad. Estos pilares se integran en su narrativa
+digital y forman parte de la identidad que proyectan en sus canales (Mattelsa, s.f.). En este trabajo, nos proponemos investigar cómo los usuarios perciben a Mattelsa a través de las redes sociales, con base en los mensajes que la marca pública. Analizaremos las reacciones, comentarios y sentimientos expresados por su audiencia para comprender si estos contenidos generan identificación, afinidad o incluso rechazo. Esta investigación busca aportar al entendimiento del papel que juega la comunicación digital en la construcción de marca con propósito y en la conexión emocional con sus seguidores.
